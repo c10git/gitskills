@@ -1,1 +1,1 @@
-# gitskills
+# gitskills c10·ÖÖ§
